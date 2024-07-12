@@ -1,1 +1,1 @@
-# Velog
+<https://velog.io/@hwangsangjin>
